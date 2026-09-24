@@ -4,3 +4,5 @@
 - 📫 How to reach me 0975072657
 -  實習單位:高雄國際航空站
 -  證照:ESG project Management、產品碳足跡 內部查證員訓練課程
+-  YouTube premium資深會員
+-  0050股東
